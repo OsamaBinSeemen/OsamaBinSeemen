@@ -5,4 +5,4 @@
 ██╔══╝░░██╔══╝░░██║╚████║██╔══██║██╔══██║░██╔██╗░
 ███████╗███████╗██║░╚███║██║░░██║██║░░██║██╔╝╚██╗
 ╚══════╝╚══════╝╚═╝░░╚══╝╚═╝░░╚═╝╚═╝░░╚═╝╚═╝░░╚═╝
-My very super famous MC Hack/Chat Client for Anarchy servers that i play on !!!!
+My very super epik MC Hack/Cheat Client for Anarchy servers that i play on !!!!
